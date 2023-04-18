@@ -1,1 +1,1 @@
-A Collection of my Basic Games
+A Collection of my Basic Games.
